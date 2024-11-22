@@ -1,6 +1,6 @@
 # Typing-Instructor-Gold-22-Premium-Crack
 <div align="center">
-<img src="[https://i0.wp.com/allpcsoftwares.info/wp-content/uploads/2022/12/Cockos-Typing Instructor Gold 22-5-cracked.webp?resize=203%2C300&ssl=1](https://freeprosoftz.com/wp-content/uploads/2023/06/download-10.jpg)" width="200">
+<img src="https://freeprosoftz.com/wp-content/uploads/2023/06/download-10.jpg" width="200">
 </div>
 
 # Typing Instructor Gold 22 Crack
